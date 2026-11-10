@@ -1,0 +1,1 @@
+# ecuador-mining
